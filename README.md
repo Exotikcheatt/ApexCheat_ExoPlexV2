@@ -21,4 +21,4 @@
 🩸 - BIG Map Radar ( Style ALGS )
 🩸 - GameMode ( TDM or NOT )
 ------------------------------- 
-
+discord : https://discord.gg/rxqpuSwBHg
