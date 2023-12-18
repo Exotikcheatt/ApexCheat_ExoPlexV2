@@ -24,5 +24,5 @@ NO TEST I DON'T NEED TO PROVE THAT MY PRODUCT IS GOOD ❤️
 ## 🩸 - BIG Map Radar ( Style ALGS )
 ## 🩸 - GameMode ( TDM or NOT )
 -------------------------------
-discord : https://discord.gg/rxqpuSwBHg
-website : https://exotikcheat.sellpass.io/
+# discord : https://discord.gg/rxqpuSwBHg
+# website : https://exotikcheat.sellpass.io/
